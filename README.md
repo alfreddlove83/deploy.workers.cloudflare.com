@@ -1,6 +1,12 @@
 # Deploy to Cloudflare @alfreddlove @alfreddlove83 @accua2403
 A GitHub OAuth integration for deploying projects to Cloudflare Workers or EcoTecNo Friendly Style using GitHub Actions or IA EcoTecNo 
+Activa GitHub Pages en Settings → Pages → main branch.
 
+Tu link IA EcoTecNo Support Creará:
+
+ 
+https://alfreddlove83.github.io/alfredo-martinez--pasten-inc
+ 
 ![alfreddlove83](https://g.dev/alfreddlove83)
 
 ## Using this https://g.dev/openboy83 or @accua2483
