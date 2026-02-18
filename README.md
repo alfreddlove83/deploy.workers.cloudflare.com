@@ -1,3 +1,19 @@
+LICENCIA - T&C Autor MAPA830324UM9 DE CDMX MÉXICO  2004.
+ALFREDO MARTINEZ PASTEN INC
+EcoTecNo Global GROUP CORP ORG
+EcoTecNo Tecnología Social 
+EcoTecNo Friendlys Styles 
+EcoTecNo Global Protocol 360 Black Regulatory 
+EcoTecNo Tecnología Social 
+EcoTecNo 
+El Punto Exacto Beer-Coffee 
+Ferretería Axolotl 
+Locales Axolotl con Diversidad e Inclusión 
+Alfredo Martinez Pasten (Fundación)
+Secure Global Regulatory Protocol 
+Andrick - GoogleGemini_ProIA
+[♈ Andrick Global Regulatory 360 Black 🐦‍🔥🔒]&%✓
+@alfreddlove83 @Openboy83 
 
 Página de inicio
 Repositorio
